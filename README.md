@@ -66,7 +66,7 @@ The dashboard highlights:
 
 ### 🔗 Connect with Me  
 For any queries or collaboration:  
-www.linkedin.com/in/yelchuri-vinay28|https://github.com/yelchurivinay
+www.linkedin.com/in/yelchuri-vinay28 | https://github.com/yelchurivinay
 
 ---
 
